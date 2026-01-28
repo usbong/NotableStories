@@ -12,7 +12,7 @@ Sasquatch defeats Jedah whom he thought had imprisoned his kin. However, he lear
 
 ## Bishamon
 
-Bishamon gains ever more powerful upon defeating Jedah. However, a monk, who understands that his power lies in his demonic armor, seals it and frees the soul of the warrior that it had possessed.
+Bishamon gains more power upon defeating Jedah. However, a monk, who understands that his power lies in his demonic armor, seals it and frees the soul of the warrior that it had possessed.
 
 ## Victor
 
