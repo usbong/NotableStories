@@ -18,3 +18,6 @@ Bishamon gains more power upon defeating Jedah. However, a monk, who understands
 
 Victor gets to save little girl Emily with all his strength. When Emily wakes up, she finds Victor lifeless, but smiling.
 
+## Anakaris
+
+Anakaris gets everything for himself upon defeating Jedah. He decides to be the king of his own demonic kingdom rather than the king of everything for eternity.
